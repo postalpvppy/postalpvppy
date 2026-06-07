@@ -1,4 +1,4 @@
-<img align="left" src="https://github.com/user-attachments/assets/63ac704f-a3c7-4962-a475-1d57f4df7b93" height="210px"/><img src="https://github.com/user-attachments/assets/abb590ab-602e-45e7-bc35-79a886156eca" width="380px"><img align="right" src="https://github.com/user-attachments/assets/51ecdb49-96e0-44b9-86bd-ffdda2c9a7de" height="210px"/><br>
+<img align="left" src="https://github.com/user-attachments/assets/6f0c1b1c-cd35-4774-9777-c2ecec7755fb" height="210px"/><img src="tumblr_822b351f1d37d0e5b89e3f6390539bb0_55e12141_540" src="https://github.com/user-attachments/assets/1d6aba96-b681-4bca-b07a-b0a33cd23f7d" width="350px"><img align="right" src="https://github.com/user-attachments/assets/905ba9ee-f6da-4da1-8651-c5e1c57badbf" height="210px"/><br>
 </p>
   <h3 align="center">
 ❤︎</h3>
@@ -13,7 +13,7 @@ wip<br>
   <sub>repo layout: <a href="https://github.com/cleffed">@cleffed</a> on github</sub><br>
   <sub>layout might be broken on some devices + some text wont be visible for light mode users</sub><br>
   <br>
-  <img src="https://github.com/user-attachments/assets/abb590ab-602e-45e7-bc35-79a886156eca" width="380px">
+  <img src="https://github.com/user-attachments/assets/6de8dc3a-f41d-460b-aba9-201098f08cba" width="580px">
   <br>
 
 ![](https://hit.yhype.me/github/profile?account_id=249067344)
