@@ -18,9 +18,9 @@ wip
 <details>
   <summary>DNI</summary>
   <br>
-  <a href="https://carrd.co">basicdnii.carrd.co</a>
+<a href="https://listography.com/basicdonotinteract">listography.com/basicdonotinteract</a>
 
-not mine!!
+not mine <3
 </details>
 <img align="center" src="https://github.com/user-attachments/assets/6de8dc3a-f41d-460b-aba9-201098f08cba" width="380px">
 </div>
