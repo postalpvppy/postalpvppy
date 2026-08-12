@@ -3,7 +3,7 @@
 <h3 align="center">
 ❤︎</h3>
 <p align="center">
-   <sub><code>hl + hlvrai, postal, scp, portal, s:cotl, charborg</sub></code><br>
+   <sub><code>hl + hlvrai, postal, scp, portal, charborg</sub></code><br>
 <br>
 wip
 <br>
