@@ -8,7 +8,7 @@
 wip
 <br>
 ₊˚ ✧ ━━━━━━━━ ⊱⋆⊰ ━━━━━━━━ ✧ ₊˚<br>
- <a href="https://pronouns.cc/@p1997">pronouns</a>  ㅤ ㅤ<a href="https://github.com/postalpvppy/fandoms">fandoms</a>  ㅤ ㅤ<a href="https://tommytime.atabook.org/">atabook</a>    ㅤ ㅤ<a href="https://postalfanatic.straw.page">strawpage (temp. unavailable)</a>    ㅤ ㅤ<br>
+ <a href="https://pronouns.cc/@p1997">pronouns</a>  ㅤ ㅤ<a href="https://github.com/postalpvppy/fandoms">fandoms</a>  ㅤ ㅤ<a href="https://tommytime.atabook.org/">atabook</a>    ㅤ ㅤ<a href="https://postalfanatic.straw.page">strawpage (wip)</a>    ㅤ ㅤ<br>
 <br>
 <br>
    <sub>repo layout: <a href="https://github.com/cleffed">@cleffed</a> on github</sub><br>
