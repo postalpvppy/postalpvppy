@@ -17,10 +17,11 @@ wip
 <div align="center">
 <details>
   <summary>DNI</summary>
+bigots, profic, MAPs, queerphobes, RPF, zoophiles, RCTAs, radqueers, zionists, agere/cgl (<-- nothing wrong with them, they just make me uncomfortable)
   <br>
 <a href="https://listography.com/basicdonotinteract">listography.com/basicdonotinteract</a>
 
-not mine <3
+a more expanded list, not mine
 </details>
 <img align="center" src="https://github.com/user-attachments/assets/6de8dc3a-f41d-460b-aba9-201098f08cba" width="380px">
 </div>
