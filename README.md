@@ -8,7 +8,7 @@
 wip
 <br>
 ₊˚ ✧ ━━━━━━━━ ⊱⋆⊰ ━━━━━━━━ ✧ ₊˚<br>
- <a href="https://pronouns.cc/@p1997">pronouns</a>  ㅤ ㅤ<a href="https://github.com/postalpvppy/fandoms">fandoms</a>  ㅤ ㅤ<a href="https://tommytime.atabook.org/">atabook</a>    ㅤ ㅤ<a href="https://postalfanatic.straw.page">strawpage (wip)</a>    ㅤ ㅤ<br>
+ <a href="https://pronouns.cc/@p1997">pronouns</a>  ㅤ ㅤ<a href="https://github.com/postalpvppy/fandoms">fandoms</a>  ㅤ ㅤ<a href="https://tommytime.atabook.org/">atabook</a>    ㅤ ㅤ<a href="https://wrenniewrenster.straw.page">strawpage (wip)</a>    ㅤ ㅤ<br>
 <br>
 <br>
    <sub>repo layout: <a href="https://github.com/cleffed">@cleffed</a> on github</sub><br>
@@ -17,7 +17,7 @@ wip
 <div align="center">
 <details>
   <summary>DNI</summary>
-bigots, profic, MAPs, queerphobes, RPF, zoophiles, RCTAs, radqueers, zionists, agere/cgl (<-- nothing wrong with them, they just make me uncomfortable)
+bigots, profic, MAPs, queerphobes, RPF (<- jokes ok i guess idk), zoophiles, RCTAs, radqueers, zionists, under 13s, agere/cgl (<-- nothing wrong with them, they just make me uncomfortable)
   <br>
 <a href="https://listography.com/basicdonotinteract">listography.com/basicdonotinteract</a>
 
