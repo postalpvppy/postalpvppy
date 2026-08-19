@@ -1,29 +1,12 @@
-<img align="left" src="https://github.com/user-attachments/assets/6f0c1b1c-cd35-4774-9777-c2ecec7755fb" height="210px"/><img src="https://github.com/user-attachments/assets/25e45c20-7290-4250-8323-5ed338a2e5c2" src="https://github.com/user-attachments/assets/1d6aba96-b681-4bca-b07a-b0a33cd23f7d" width="380px"><img align="right" src="https://github.com/user-attachments/assets/905ba9ee-f6da-4da1-8651-c5e1c57badbf" height="210px"/><br>
-</p>
-<h3 align="center">
-❤︎</h3>
-<p align="center">
-   <sub><code>hl + hlvrai, postal, scp, portal, charborg</sub></code><br>
+ <a href="https://pronouns.cc/@p1997">pronouns.cc</a>  ㅤ ㅤ<a href="https://github.com/postalpvppy/fandoms">fandoms and interests</a>  ㅤ ㅤ<a href="https://tommytime.atabook.org/">atabook</a>    ㅤ ㅤ<a href="https://wrenniewrenster.straw.page">strawpage (wip)</a>    ㅤ ㅤ<br>
+![](https://hit.yhype.me/github/profile?account_id=249067344)
 <br>
-wip
-<br>
-₊˚ ✧ ━━━━━━━━ ⊱⋆⊰ ━━━━━━━━ ✧ ₊˚<br>
- <a href="https://pronouns.cc/@p1997">pronouns</a>  ㅤ ㅤ<a href="https://github.com/postalpvppy/fandoms">fandoms</a>  ㅤ ㅤ<a href="https://tommytime.atabook.org/">atabook</a>    ㅤ ㅤ<a href="https://wrenniewrenster.straw.page">strawpage (wip)</a>    ㅤ ㅤ<br>
-<br>
-<br>
-   <sub>repo layout: <a href="https://github.com/cleffed">@cleffed</a> on github</sub><br>
-   <sub>best viewed on computer</sub><br>
-
-<div align="center">
 <details>
   <summary>DNI</summary>
 bigots, profic, MAPs, queerphobes, RPF (<- jokes ok i guess idk), zoophiles, RCTAs, radqueers, zionists, under 13s, agere/cgl (<-- nothing wrong with them, they just make me uncomfortable)
-  <br>
+   <br>
+   <br>
 <a href="https://listography.com/basicdonotinteract">listography.com/basicdonotinteract</a>
-
+   <br>
 a more expanded list, not mine
 </details>
-<img align="center" src="https://github.com/user-attachments/assets/6de8dc3a-f41d-460b-aba9-201098f08cba" width="380px">
-</div>
-
-![](https://hit.yhype.me/github/profile?account_id=249067344)
